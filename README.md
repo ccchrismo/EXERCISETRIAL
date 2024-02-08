@@ -1,0 +1,2 @@
+# EXERCISETRIAL
+trial szn lawa
